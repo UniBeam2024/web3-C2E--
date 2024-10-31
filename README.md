@@ -86,9 +86,7 @@
 随便翻拍B站录个solidity课程糊弄糊弄得了!     
 随便去买两个Demo网盘项目糊弄糊弄得了!     
 
-|||
-|--|--|
-| <img  width="300"  src="https://github.com/user-attachments/assets/30bbdb57-c40a-4270-824a-552df17c1b26"> | <img  width="500"  src="https://github.com/user-attachments/assets/ba13918a-430f-4898-aa40-ad25b9535540"> |
+ <img  width="300"  src="https://github.com/user-attachments/assets/30bbdb57-c40a-4270-824a-552df17c1b26"> 
 
 
 
