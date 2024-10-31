@@ -213,7 +213,7 @@
 
 
 
-已被坑学员统一维权交流，可以加我 discord： unibeam2024 ， 验证进群。
+已被坑学员统一维权交流群 [https://discord.gg/FxvXBBrKFj](url)  ， 验证学员进交流区。
 
 #### 建议所有被坑或者即将被坑的同学在issue区域提交证据（证据可以脱敏处理），以免其他同学被坑：
 [https://github.com/UniBeam2024/web3-C2E--/issues/new](url)
