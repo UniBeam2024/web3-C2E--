@@ -46,9 +46,7 @@
 **远程工作门槛低、收入高、还舒服**    
 无需专业能力就可以把人忽悠的团团转    
 
-|||
-|--|--|
-| <img  width="300"  src="https://github.com/user-attachments/assets/c9acf9c2-ccdb-47cc-a1bb-be36d2b5cd4f"> | <img  width="500"  src="https://github.com/user-attachments/assets/68dc0b9b-0534-4d11-a478-543d73f5921d"> | 
+ <img  width="300"  src="https://github.com/user-attachments/assets/c9acf9c2-ccdb-47cc-a1bb-be36d2b5cd4f">
 
 
 因为他们的传销头子赵某翀**培训话术**就是：    
@@ -86,8 +84,9 @@
 随便翻拍B站录个solidity课程糊弄糊弄得了!     
 随便去买两个Demo网盘项目糊弄糊弄得了!     
 
- <img  width="300"  src="https://github.com/user-attachments/assets/30bbdb57-c40a-4270-824a-552df17c1b26"> 
-
+|||
+|--|--|
+| <img  width="300"  src="https://github.com/user-attachments/assets/30bbdb57-c40a-4270-824a-552df17c1b26">  | <img  width="500"  src="https://github.com/user-attachments/assets/cb0dd7f6-0f27-4170-94da-7e8763dab617"> | 
 
 
 ### 🔪🔪🔪骗局第三步、阴阳两面交付你     
