@@ -128,6 +128,8 @@
 **什么包就业？只要导师评估你达到就业水平了**      
 找不到工作就是你故意的！**退款免谈**！    
 
+<img width="300"  src="https://github.com/user-attachments/assets/36ffe4d3-87b3-400e-ae36-6c93ed03c699">
+
 #### -想好聚好散拿点退款？     
 **抱歉，是不可能的**
 在拿包就业忽悠你的那一刻     
@@ -139,9 +141,8 @@
 付费学员之间想交流是不可能的     
 你作为个体能斗得过赵某和胡某的心眼？    
 
-|||
-|--|--|
-| <img width="300"  src="https://github.com/user-attachments/assets/becbf780-22fe-4a87-920e-ecdc45d44170"> | <img width="300"  src="https://github.com/user-attachments/assets/366d3573-7012-437f-8132-9c5066149d9b"> | 
+<img width="300"  src="https://github.com/user-attachments/assets/366d3573-7012-437f-8132-9c5066149d9b"> 
+
 
 
 # 🤡🤡🤡 揭露二：全员韭菜
