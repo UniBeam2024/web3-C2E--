@@ -1,4 +1,4 @@
-# 🔥🔥🔥 割韭菜割红眼的C2E社区（持续爆料，敬请关注） 🔥🔥🔥
+![image](https://github.com/user-attachments/assets/772cfa48-7613-47ca-9866-72e6cc9a8476)# 🔥🔥🔥 割韭菜割红眼的C2E社区（持续爆料，敬请关注） 🔥🔥🔥
 
 ## 🤡🤡🤡 揭露一：建材老板+江湖骗子的C某E社区正在疯狂收割程序员  
 
@@ -46,7 +46,8 @@
 **远程工作门槛低、收入高、还舒服**    
 无需专业能力就可以把人忽悠的团团转    
 
- <img  width="300"  src="https://github.com/user-attachments/assets/c9acf9c2-ccdb-47cc-a1bb-be36d2b5cd4f">
+ <img  width="300"  src="https://github.com/user-attachments/assets/6748a86b-d045-48ef-9f38-859704dcb7f9">
+
 
 
 因为他们的传销头子赵某翀**培训话术**就是：    
@@ -87,7 +88,8 @@
 
 |||
 |--|--|
-| <img  width="300"  src="https://github.com/user-attachments/assets/30bbdb57-c40a-4270-824a-552df17c1b26">  | <img  width="500"  src="https://github.com/user-attachments/assets/cb0dd7f6-0f27-4170-94da-7e8763dab617"> | 
+| <img  width="300"  src="https://github.com/user-attachments/assets/bfe09c22-29ed-44f3-ae51-e76591815a93">  | <img  width="500"  src="https://github.com/user-attachments/assets/cb0dd7f6-0f27-4170-94da-7e8763dab617"> | 
+
 
 
 ### 🔪🔪🔪骗局第三步、阴阳两面交付你     
@@ -107,12 +109,13 @@
 
 |||
 |--|--|
-| <img width="300"  src="https://github.com/user-attachments/assets/9890c534-4e1a-49f4-83e2-d75acb7a49cf"> |  <img width="500"  src="https://github.com/user-attachments/assets/8cfd7eda-6b2f-4fcc-8ab5-b7f13d0bd4ab">  | 
+| <img width="300"  src="https://github.com/user-attachments/assets/f89ddb81-a46f-4da8-916e-0a1e60e6d0c6"> |  <img width="500"  src="https://github.com/user-attachments/assets/683b86e4-c73a-4fd7-bc38-d84e3fee0442">  | 
+
+
 
 |||
 |--|--|
-|  <img width="300"  src="https://github.com/user-attachments/assets/e287d807-1a59-4e15-a0bd-aa4b85b5e73f"> | <img width="500"  src="https://github.com/user-attachments/assets/ed54d921-bd8e-48d6-b398-e38cee791dab"> | 
-
+|  <img width="300"  src="https://github.com/user-attachments/assets/b1f317c3-139f-4777-a3c4-6c06bf70ef90"> | <img width="500"  src="https://github.com/user-attachments/assets/01a54edf-5dc1-43e1-9380-b64f203d44e4"> | 
 
 
 ### 🔪🔪🔪什么？你说虚假宣传可以退款？    
@@ -142,7 +145,7 @@
 付费学员之间想交流是不可能的     
 你作为个体能斗得过赵某和胡某的心眼？    
 
-<img width="300"  src="https://github.com/user-attachments/assets/366d3573-7012-437f-8132-9c5066149d9b"> 
+<img width="300"  src="https://github.com/user-attachments/assets/a84216ac-6f9d-40c5-b583-dc14fe593025"> 
 
 
 
@@ -191,7 +194,7 @@
     
 3. C2E公司实际控制人胡某旺做建材出身，名下五家公司三家为建材企业，近期其与公司业务主管赵某翀（非真名）诱骗区块链开发人员为其创建web3课程项目     
 
- <img width="300"  src="https://github.com/user-attachments/assets/44ad10d7-618e-402a-b11c-f41fc9df62d9"> 
+ <img width="300"  src="https://github.com/user-attachments/assets/4dc6f839-6288-4078-9eaf-e8edc1beab55"> 
 
 
 
