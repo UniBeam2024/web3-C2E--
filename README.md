@@ -204,10 +204,7 @@
 #### 无论你是去应聘还是花钱学习，请记住这两个人的名字，时刻保持警惕！    
 **建材老板： 胡某旺**    
 **传销骗子： 赵某翀（非真名）**    
-|||
-|--|--|
-| <img width="300"  src="https://github.com/user-attachments/assets/7cb0a83f-c387-4663-9f28-8978b835256b"> | <img width="300"  src="https://github.com/user-attachments/assets/05e67182-6306-433d-b918-6898b288fc5c">  | 
-
+ <img width="500"  src="https://github.com/user-attachments/assets/392203b5-d1d8-4ae9-8319-9211fe7f4985"> 
 
 
 
