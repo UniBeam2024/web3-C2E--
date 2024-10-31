@@ -63,7 +63,8 @@
 到头来一场空！！！   
 **十分残忍！！**    
 
- <img  width="500"  src="https://github.com/user-attachments/assets/2aca3998-091c-4d4d-981b-074566115e35"> 
+
+ <img  width="500"  src="https://github.com/user-attachments/assets/ceb89bcf-110b-44f2-abad-0a355c44d337"> 
 
 ### 🔪🔪🔪骗局第二步、心理战卖你课     
 加了好友就开始靠根本不存在的课程服务忽悠     
